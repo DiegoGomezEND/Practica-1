@@ -7,5 +7,7 @@ Esto esta Difícil wey
 
 Oh my god!
 
+Mambru se fue a la guerra 
+
 
 
